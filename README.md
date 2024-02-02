@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shaadoooowww
+- 👋 Hi, I’m Asmaa
 - 👀 I’m interested in a bit of everything lol
 - 🌱 I’m currently learning AI+web dev
 - 📫 How to reach me well no needs for that
